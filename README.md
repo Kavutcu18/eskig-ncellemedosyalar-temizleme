@@ -1,0 +1,2 @@
+# eskig-ncellemedosyalar-temizleme
+aa
